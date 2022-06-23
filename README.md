@@ -1,0 +1,4 @@
+- 👋 Hi, I’m vic
+- 👀 I’m interested in  aprender
+- 🌱 I’m currently learning programação 
+- 📫 How to reach me vitoria.gabrielasouzade.oliveira@escola.pr.gov.br
